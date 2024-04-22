@@ -52,6 +52,9 @@ Finally, Sangvish's[ Lyft Clone Script](https://sangvish.com/lyft-clone/) provid
 
 Get a live demo of Lyft Clone today and experience the seamless functionality and customization options firsthand. - https://sangvish.com/lyft-clone/
 
+**Contact Us,**
 
+Call: +91- 8300505021
 
+Mail ID- [info@sangvish.com](mailto:info@sangvish.com)
 
